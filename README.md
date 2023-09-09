@@ -1,4 +1,4 @@
-# how-to-get-canvapro-free-lifetime
+# how-to-get-canvapro-free-lifetime-monthly-weekly (by random)
 How To Get Canva Pro Ezly
 ---------------
 Hallooo! Jadi buat kalian yang iseng iseng buka github ku di bio instagram trus punya Apk canva tapi males buat upgrade ke Pro karna ada biaya nya, yuk simak cara berikut ini yang dijamin 100% gratis dan aman
